@@ -1,1 +1,0 @@
-# bekturashymov.github.kg
